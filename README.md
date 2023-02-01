@@ -1,9 +1,9 @@
-# Little Wins
+# Little Wins -> Big Wins -> Wins
 
 Little wins lead to Big Wins we love the little things that lead to the greater things we would like to achieve ! 
 
-# Big Wins
-# Wins
+
+
 
 All we do is win here !
 
