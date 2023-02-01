@@ -1,4 +1,7 @@
 # Little Wins
+
+Little wins lead to Big Wins we love the little things that lead to the greater things we would like to achieve ! 
+
 # Big Wins
 # Wins
 
